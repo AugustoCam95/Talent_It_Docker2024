@@ -1,5 +1,3 @@
-Claro, aqui está uma adição à introdução da Empresa AquaFertility, destacando suas principais áreas de atuação e expertise:
-
 Serviços
 
 Na Empresa AquaFertility, oferecemos uma ampla gama de serviços especializados para abordar os desafios do controle populacional aquático de maneira eficaz e sustentável. Nossas soluções abrangem desde a pesquisa e monitoramento de populações aquáticas até o desenvolvimento e implementação de estratégias de controle adaptadas às necessidades específicas de cada ecossistema.
